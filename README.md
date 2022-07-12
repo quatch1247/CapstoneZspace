@@ -1,5 +1,5 @@
 # Capstone_zspace
-캡스톤 디자인 zspace 유니티 프로젝트
+캡스톤 디자인 zspace 유니티 팀프로젝트
 
 스크린샷
 
