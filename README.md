@@ -12,8 +12,6 @@
 40-443c-9688-53d81365529f.jpg)
 fa726.jp
 ![z8](https://user-images.githubusercontent.com/80108373/178409871-46c64f85-c309-4097-ba45-b652a8c2e766.jpg)
-
 ![z4](https://user-images.githubusercontent.com/80108373/178409857-b7a7373a-ac8b-4acc-aa07-3a8f49f91946.jpg)
 g)
 ![z3](https://user-images.githubusercontent.com/80108373/178409850-b391cd50-8d77-45cf-aa81-3b3a366dca74.jpg)
-
