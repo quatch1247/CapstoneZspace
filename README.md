@@ -11,3 +11,5 @@
 ![z7](https://user-images.githubusercontent.com/80108373/178410180-d4ae787a-26e6-4318-917a-9d8b7632d068.jpg)
 ![z3](https://user-images.githubusercontent.com/80108373/178410193-5697c963-5b32-4210-a01a-799178473169.jpg)
 ![z8](https://user-images.githubusercontent.com/80108373/178410186-7105e129-bb94-41b3-9ad3-2942c19e88b6.jpg)
+![수상이력](https://user-images.githubusercontent.com/80108373/210193435-799445e2-3d33-460c-8ba2-6065c486570b.png)
+
